@@ -1,1 +1,0 @@
-# deepthi-kitchen-vision.
